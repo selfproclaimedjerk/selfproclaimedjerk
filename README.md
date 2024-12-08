@@ -5,16 +5,16 @@
 
 ![](https://64.media.tumblr.com/3fc3f43e4fdea8269573f7078c7b9888/fc64dfe582ead904-8e/s400x600/e0fbc1ed3f93fd7c036ad5af51dca1ce4cbbdc39.pnj)
 
-‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-
+‎
 *Necesito regalarte **todo***  ──  *Ver que algo se revela **siempre** al final*
 
 *Un **escudo** de metal te protege a **vos**  ──  A **vos***‎ ‎ ‎ ‎ ‎ ‎‎/*‎ ‎ ‎lyr*
-‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ 
 
+*check rntry / sp 4 more info . . .*
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
-![](https://64.media.tumblr.com/f49a35c33a9fceb284a44797fe7d3fbb/bda8b752119b2997-78/s400x600/2645f9b54a1a8a9a6d734fcaf06804e8b9af2b48.jpg)
+  ![](https://64.media.tumblr.com/f49a35c33a9fceb284a44797fe7d3fbb/bda8b752119b2997-78/s400x600/2645f9b54a1a8a9a6d734fcaf06804e8b9af2b48.jpg)
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ 
 
