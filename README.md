@@ -1,19 +1,21 @@
-![kiss now](https://64.media.tumblr.com/e3c359afec3a1cd99c9d5fdaf2949847/01bba11fe5b8596b-78/s100x200/f55b09358547eba41eed5de0bfe901fa5e009b3d.pnj)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![image](https://github.com/user-attachments/assets/baa9d147-ff72-4507-b716-101213b1f81a)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/85eda8c7-2fae-49d8-aebd-c32e0b3c1d33)
+![kiss now](https://64.media.tumblr.com/e3c359afec3a1cd99c9d5fdaf2949847/01bba11fe5b8596b-78/s100x200/f55b09358547eba41eed5de0bfe901fa5e009b3d.pnj)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![image](https://64.media.tumblr.com/e6a4b6b4934d0d7770bd6df1912b5f42/f16e86f1b2409326-ec/s100x200/27f31dd861299f63dcca25ac9f9537e1336286bf.gifv)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/85eda8c7-2fae-49d8-aebd-c32e0b3c1d33)
 ‎ 
 
 ![](https://64.media.tumblr.com/a515419802aeacad497c3274d52d1d56/dfc08164274c5a17-7d/s2048x3072/7348ed1afe03890738afce3650ab3c73a6b5103b.pnj)
 
-cuddles are very appreciated (but don't be creepy about it plz ,,) and friend requests (after we've like,, interacted n stuff) are too, keep in mind i'm very shy at times so i won't probably come up to u first 💔💔 also spaces with alot of people tend to stress me out alot so i'll probably be in quieter ones ^_^
+‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
- ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![](https://file.garden/Zw_DyibLUTUchIAz/nickfactloon) ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://file.garden/Zw_DyibLUTUchIAz/looniestamp) ‎ ‎
+*Necesito regalarte **todo***  ──  *Ver que algo se revela **siempre** al final*
 
-additionally i might switch between referring to myself with i/me and we/us since i'm an introject from a cdid system so. yeah! regarding that most of the time skin is who's fronting atm
+*Un **escudo** de metal te protege a **vos**  ──  A **vos***‎ ‎ ‎ ‎ ‎ ‎‎/*‎ ‎ ‎lyr*
 ‎ 
+
+‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 ![](https://64.media.tumblr.com/a515419802aeacad497c3274d52d1d56/dfc08164274c5a17-7d/s2048x3072/7348ed1afe03890738afce3650ab3c73a6b5103b.pnj)
 
 
-![image](https://github.com/user-attachments/assets/fd53ba67-7514-4ba3-8049-51268d505b42)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![image](https://github.com/user-attachments/assets/c22d04ef-8275-4bdf-82cf-c6ffa1f5d0a1)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/3c3a10d9-bf82-4185-8be7-169ddbb2b8de)
+![image](https://64.media.tumblr.com/17e7f51e27c14f4360739a4113306e51/473928ea48888009-16/s100x200/4a5cf44a6826e8a31ad60bdfcd9598dac73eddeb.jpg)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![image](https://64.media.tumblr.com/171309768724d116f4f75dec59c4b00d/764128340d538b83-ce/s100x200/a957618d052f32ca07acb0dec350f7653c932474.pnj)‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ![image](https://64.media.tumblr.com/641285415c01159b5daf0f5f46faecb9/8f8af27e85fcd6ea-ab/s100x200/080c12952306c9fe1030ff749bce75381e4fe75b.pnj)
 
 
 
